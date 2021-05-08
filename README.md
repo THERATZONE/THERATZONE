@@ -1,2 +1,3 @@
 # THERATZONE
-https://tenor.com/view/rat-rats-rat-zone-the-rats-rat-zone-for-life-gif-15206086
+![racisz](https://user-images.githubusercontent.com/28823457/117551344-f4fde500-b034-11eb-8421-64c8281bbb3b.gif)
+
