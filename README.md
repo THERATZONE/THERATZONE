@@ -1,3 +1,2 @@
-![tenor](https://user-images.githubusercontent.com/28823457/117551173-f2e75680-b033-11eb-81d2-4d95cc89754c.gif)
 # THERATZONE
-RAT RAT RAT RAT RAT RAT RAT RAT RAT RAT RAT RAT RAT RAT RAT 
+![tenor](https://tenor.com/view/rat-rats-rat-zone-the-rats-rat-zone-for-life-gif-15206086)
