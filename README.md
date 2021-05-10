@@ -1,6 +1,6 @@
 # THERATZONE
 TheRatZone organizacja promująca ratyfikacje.
-- nie jesteśmy gejami, pedofilami
+- nie jesteśmy gejami, pedofilami (rewq akurat tak)
 - #szczur
 - piesjesjedzony
 - no pies
