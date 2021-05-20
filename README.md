@@ -1,5 +1,5 @@
 # THERATZONE
-TheRatZone organizacja promująca ratyfikacje.
+TheRatZone organizacja promująca ratyfikacje, oraz szczur1 organizacja terrorystyczna.
 - nie jesteśmy gejami, pedofilami
 - #szczur
 - piesjesjedzony
